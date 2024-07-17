@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a href=[https://www.linkedin.com/in/shantanu-pandey22/]>Shantanu Pandey (LinkedIn)</a>
+- <a>[Shantanu Pandey ](https://www.linkedin.com/in/shantanu-pandey22/)(LinkedIn)</a>
 - Email: shantanupandey223@gmail.com
