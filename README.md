@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a href="https://www.linkedin.com/in/tufan-kundu-577945221/">Tufan Kundu (LinkedIn)</a>
-- Email: tufan.kundu11@gmail.com
+- <a href="[https://www.linkedin.com/in/shantanu-pandey22/]">Shantanu Pandey (LinkedIn)</a>
+- Email: shantanupandey223@gmail.com
